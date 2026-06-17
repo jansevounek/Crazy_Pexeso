@@ -1,2 +1,2 @@
 # Crazy_Pexeso
-Prostě pexeso vole
+Proste pexeso
